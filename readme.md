@@ -1,0 +1,1 @@
+Note : record written articles
